@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @JonnyOrNot
+- 👀 I’m interested in computer shit and anime
+- 🌱 I’m currently learning ASL sign language (vrchat)
+- 💞️ I’m looking to collaborate on idk
+- 📫 my social media:
+--> https://twitter.com/JonnyOrNot
+--> https://www.twitch.tv/jonnyornot
+--> https://www.youtube.com/channel/UC96k4_bH93JjzqZL6DLQgMg
